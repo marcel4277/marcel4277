@@ -6,4 +6,4 @@ Student at Napier (ux design)
 
 he/him
 
-marcelkubacki742 [@] gmail.com
+marcel.kubacki3 [@] gmail.com
